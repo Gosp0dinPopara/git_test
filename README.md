@@ -1,1 +1,1 @@
-dućni ga
+dućni ga majmune
